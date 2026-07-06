@@ -226,7 +226,7 @@ Road-Accident-Analysis-PowerBI/
 **Sayan Sau**
 
 - GitHub: `https://github.com/Saubhagya-M
-- LinkedIn: `https://www.linkedin.com/in/sayan-sau-8239216b
+- LinkedIn: `www.linkedin.com/in/saubhagya-munsi-20042012sg
 
 > 
 
